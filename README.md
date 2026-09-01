@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AOMI851122MVZLNV06
+AOMI851122MVZLNV06
